@@ -3,6 +3,6 @@ coco pops
 cornflakes
 golden morn
 oreos
-honey loops
+frosties
 cheerios
 crunchy nut
