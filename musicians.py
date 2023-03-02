@@ -9,3 +9,6 @@ baby keem
 moneybagg
 drake
 gunna
+adele
+chris brown
+kizz daniel
